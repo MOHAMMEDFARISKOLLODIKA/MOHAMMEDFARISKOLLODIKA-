@@ -13,4 +13,4 @@ I'm an aspiring AI & ML enthusiast passionate about AI tools development and bec
 - IBM From learners to builders :Become an AI agent architect 
 ## 📫 Reach Me
 - Email: mohammedfariskollodika@gmail.com
-- [LinkedIn](https://www.linkedin.com/in/mohammed-faris-kollodika)
+- [LinkedIn](https://www.linkedin.com/in/mohammed-faris-kollodika-862895332?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)
